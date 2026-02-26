@@ -6,6 +6,5 @@
 📈 Passionate about transforming raw data into actionable insights  
 💞️ Open to collaborating on data analytics projects and dashboards  
 📫 How to reach me: abhijitsahoo759@gmail.com | https://www.linkedin.com/in/abhijit-sahoo-b34a5136a/
-
 😄 Pronouns: He/Him  
 ⚡ Fun fact: I enjoy finding patterns hidden inside messy datasets
